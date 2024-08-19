@@ -1,0 +1,1 @@
+# ciftsayi_patika.dev
